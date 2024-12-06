@@ -1,2 +1,0 @@
-# SmartSolarBinICTCA
-Karya Ilmiah
